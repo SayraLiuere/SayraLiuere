@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student!! trying my best.<br>Trying to make and finish my projects.<br> ><
+I'm a student!! trying my best.<br>Trying to make and finish my projects. You can find my streaks also in DUolingo, Gizmo.ai and Tryhackme! <br> ><
 
 
 ## 🌐 Socials:
